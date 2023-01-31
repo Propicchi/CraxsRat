@@ -1,4 +1,6 @@
 contact telegram to buy it !
+10$
+
 wait wait wait 
 
 i am not like other...
